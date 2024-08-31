@@ -1,3 +1,3 @@
 # overlord
 for knowledge
-only me
+only me frds
